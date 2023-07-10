@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @mrumamahesh
 - 👀 I’m interested in Fucking girls
-- 🌱 I’m currently learning to lick pussy
+- 🌱 I’m currently learning to lick puss
 - 💞️ I’m looking to collaborate on lesbian sex
 - 📫 How to reach me contact through xnxx
 
